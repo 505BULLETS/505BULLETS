@@ -1,5 +1,5 @@
 - don't cover me unless we're friends
 - don't int if you're -13 or 25+
 - don't joke without tone-indicators
-- you'll pretty much see me around docks or the GI/MXTX/JJK area and possibly regiments
+- you'll pretty much see me around docks or with regiments/scouts
 - don't copy
